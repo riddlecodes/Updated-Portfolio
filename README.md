@@ -1,1 +1,1 @@
-https://riddleparty.github.io/Updated_Portfolio_2/
+https://riddlecodes.github.io/Updated_Portfolio_2/
